@@ -1,1 +1,1 @@
-- Create The About me
+If you want to get in contact with us, these are our discord profiles: (galaxycheese_123), (islam_good_fr). We are developing Elite blox, a google browser plugin built for styling and adding new features to the roblox website. the hiring price depends on our work. and the reason we are doing this is because we enjoy development and we decided to be developers for our future jobs. we also want to share and help and teach new developers and incourage them to develop there first real project.
